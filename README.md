@@ -1,2 +1,5 @@
-# state-of-survival-codes-free-biocaps-cheat
-State of Survival Free biocaps Cheat codes 2021-2022 with free skins gift redeem
+# State of Survival Free biocaps Cheat codes 2021-2022 with free skins gift redeem
+
+State of Survival Free biocaps Cheat codes 2021-2022 with free skins gift redeem - In a world full of anarchy and zombies, finding allies is a necessary condition for survival and development. The first thing to do after joining the alliance is to reposition next to your allies. The game will give you a specific item. It will tell you to do it as soon as you join the alliance, so don't worry too much. Alliance members can help each other on various tasks, such as research technology and architecture. Members should also contribute to the guild. You can contribute to various goals, such as increasing the maximum number of alliance members, or improving the attack or defense of all Alliance forces. Donating to the League will earn you League honor points, which can be used to buy goods in the League store, such as chief Renamer or repositioner. state of survival plasma core state of survival gift codes 2022
+
+<a href="https://watermod.icu/state-of-survival/">go now</a>
